@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rishabhkumarmayank@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!AiIpahjIi3QMgtoYVnxTEJrjn13KkQ?e=4mwNPg](https://1drv.ms/b/s!AiIpahjIi3QMgtoYVnxTEJrjn13KkQ?e=4mwNPg)
+- 📄 Know about my experiences [https://1drv.ms/b/c/0c748bc8186a2922/EQIeEYMrSWBMnlVubVSdMnEBqofH1_2DIAbV-5s6fCARLw?e=9NSiFS](https://1drv.ms/b/c/0c748bc8186a2922/EQIeEYMrSWBMnlVubVSdMnEBqofH1_2DIAbV-5s6fCARLw?e=9NSiFS) 
 
 - ⚡ Fun fact **I like to travel.**
 
